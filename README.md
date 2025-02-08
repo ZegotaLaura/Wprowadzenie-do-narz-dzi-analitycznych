@@ -1,1 +1,0 @@
-# Wprowadzenie-do-narz-dzi-analitycznych
